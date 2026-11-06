@@ -1,0 +1,2 @@
+# kod-notlar-
+hatırlatma
